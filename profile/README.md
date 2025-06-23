@@ -12,8 +12,8 @@ this scheme.
 ## What is annadata sukhibhava?
 
 * This is a state government scheme in andhra pradesh offering ₹20,000 per year to eligible farmers.
-*  ₹14000 from the state government.
-*  ₹6000 from the PM-kisam Central Scheme.
+  - ₹14000 from the state government.
+  - ₹6000 from the PM-kisam Central Scheme.
 *  it will be paid in three installemnts:  ₹7000, + ₹7000,  ₹6000.
 
 ### latest updates (June 2025)
@@ -31,8 +31,44 @@ this scheme.
   - District Agriculture officers
   - Scheme helpline numbers
   - visit nearest mee-sava office
- 
+-------
+
+## FAQs:
+
+Q: who is eligible for annadata sukhibhava scheme?
+A: Registered farmers in andhra pradesh, including land owners and tenant farmers, one per household, with valid PM-Kisam Registration and funds linked in bank accounts
+
+Q: Is e-KYC Mandatory?
+A: Yes - Except when the government has auto-completed it (4.4lakh) farmers, others must complete their e-Kyc by the government provided deadline, or payments will be withheld.
+
+Q: I completed e-KYC but i didn't recieve money, what's next ?
+A: Your name may be in queue for upcomming instalments, if delayed, check with local officers or service centers linek MEESEVA. 
+
+Q:When will the next instalment come?
+A: After the first ₹7000(₹2000 PM-Kisan + ₹5000 state) Released on june 20, next two instalments (₹7000 and ₹6000) are expected later this year, aligned with pm-kisan disbursement cycles.
+
 ------
+
+## Summery for quick reference 
+
+* check online: OFficial portal -> Check status -> Enter aadhar num + Capcha
+* Dealline alert: e-KYC Required by june 20,2025 for remaining farmers
+* First payment: ₹7000 credted on june 20
+* Total Scheme amount: ₹20,000/ year (₹14AP + ₹6K PM-kisan)
+
+-----
+
+## Why it matters
+
+* supports around 45.7 lakh farmer familes, boosting agricultural income.
+*  timely payments and simple e-KYC means less financial stress for farmers.
+* Helps local farming economy, complements central PM-Kisam Support.
+
+---
+
+Final tip: Don't wait.! check your status today, complete any pending e-kyc, and ensure you recieve your scheme benifits of ₹2000 for the year 2025, visit again and successfully check your status, from here.
+
+Please let us know if you want any help navigating this page or details about upcoming instalment dates.!
 
 
 
