@@ -18,7 +18,7 @@ from the PM-Kisam Central government scheme, and ₹14000 from the state governm
 this scheme.
 
 > *annadata sukhibhava status check, check your status from the link given below:annadata sukhibhava status ceck by aadhaar number, phone number online check now*
-<center><h2>✅❯❯❯❯ 🛑LIVE <a href="https://www.dynews.net/2025/06/annadatha-sukhibhava-scheme-2025-full.html">Check Annadata Sukhibhava STATUS 👈🔺</a></h2></center>
+<center><h2>✅❯❯❯❯ 🛑LIVE <a href="https://www.dynews.net/2025/06/annadatha-sukhibhava-scheme-2025-full.html">Check Annadata Sukhibhava STATUS 👈🔺</a> online *WORKING* </h2></center>
 
 ## What is annadata sukhibhava?
 
