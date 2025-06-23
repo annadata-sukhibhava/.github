@@ -18,6 +18,14 @@ this scheme.
 
 ### latest updates (June 2025)
 
+| Update | Details | 
+| ------ | ------- |
+| E-KYC Relaxation | Government of andhrapradesh AUto-completed e-kyc for 4.4 lakh formers, remaining 1.45 Lakh formers must complete e-kyc to get funds from govt, state & central |
+| Beneficiaries | About 45.7 Lakh farmer families are eligible. |
+| First Installment Date | ₹ 7000(₹200 + 5000) was released on June 20, 2025 |
+
+-----
+
 
 <!--
 
