@@ -1,4 +1,4 @@
-## Annadata Sukhibhava status - Check Your 2025 Scheme paymen - AnnadataSukhibhava.ap.gov.in web
+## Annadata Sukhibhava status - Check Your 2025 Scheme payment - AnnadataSukhibhava.ap.gov.in web
 
 Farmers in andhra pradesh can now easily check theri Annadata Sukhibhava status to see if they are eligible or have recieved the latest payment 2025
 here is clear guide to, which can help you to find your current status and undestand the latest updates about scheme. 
