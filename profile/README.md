@@ -17,7 +17,7 @@ This is an andhra pradesh government support scheme (Launched in may 2025) that 
 from the PM-Kisam Central government scheme, and ₹14000 from the state government in three installemnts. Here are detailed keyfacts about 
 this scheme.
 
-*annadata sukhibhava status check, check your status from the link given below:annadata sukhibhava status ceck by aadhaar number, phone number online check now*
+> *annadata sukhibhava status check, check your status from the link given below:annadata sukhibhava status ceck by aadhaar number, phone number online check now*
 <center><h2>✅❯❯❯❯ 🛑LIVE <a href="https://www.dynews.net/2025/06/annadatha-sukhibhava-scheme-2025-full.html">Check Annadata Sukhibhava STATUS 👈🔺</a></h2></center>
 
 ## What is annadata sukhibhava?
