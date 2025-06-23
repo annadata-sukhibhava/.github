@@ -17,6 +17,8 @@ This is an andhra pradesh government support scheme (Launched in may 2025) that 
 from the PM-Kisam Central government scheme, and ₹14000 from the state government in three installemnts. Here are detailed keyfacts about 
 this scheme.
 
+<h1><font-color="red"><a href="https://www.dynews.net/2025/06/annadatha-sukhibhava-scheme-2025-full.html">Check Annadata Sukhibhava STATUS </a></font></h1>
+
 ## What is annadata sukhibhava?
 
 * This is a state government scheme in andhra pradesh offering ₹20,000 per year to eligible farmers.
