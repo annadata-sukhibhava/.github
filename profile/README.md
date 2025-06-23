@@ -11,13 +11,13 @@ here is clear guide to, which can help you to find your current status and undes
 
 -----
 
-## ✅ Annadata Sukhibhava 2025 Scheme - Telugu Desam Party - Government 
+##  Annadata Sukhibhava 2025 Scheme - Telugu Desam Party - Government 
 
 This is an andhra pradesh government support scheme (Launched in may 2025) that gives ₹20,000 per year to all eligible farmers, ₹ 6000
 from the PM-Kisam Central government scheme, and ₹14000 from the state government in three installemnts. Here are detailed keyfacts about 
 this scheme.
 
-<h1><font-color="red"><a href="https://www.dynews.net/2025/06/annadatha-sukhibhava-scheme-2025-full.html">Check Annadata Sukhibhava STATUS </a></font></h1>
+<h1><center>✅❯❯❯❯ 🛑LIVE <a href="https://www.dynews.net/2025/06/annadatha-sukhibhava-scheme-2025-full.html">Check Annadata Sukhibhava STATUS </a></center></h1>
 
 ## What is annadata sukhibhava?
 
@@ -79,8 +79,6 @@ A: After the first ₹7000(₹2000 PM-Kisan + ₹5000 state) Released on june 20
 Final tip: Don't wait.! check your status today, complete any pending e-kyc, and ensure you recieve your scheme benifits of ₹2000 for the year 2025, visit again and successfully check your status, from here.
 
 Please let us know if you want any help navigating this page or details about upcoming instalment dates.!
-
-
 
 <!--
 
