@@ -5,10 +5,9 @@ here is clear guide to, which can help you to find your current status and undes
 
 ## ✅ Annadata Sukhibhava 2025 Scheme - Telugu Desam Party - Government 
 
-This is an andhra pradesh government support scheme (Launched in may 2025) that gives ₹20,000 per year to all eligible farmers, --₹ 6000
+This is an andhra pradesh government support scheme (Launched in may 2025) that gives ₹20,000 per year to all eligible farmers, ₹ 6000
 from the PM-Kisam Central government scheme, and ₹14000 from the state government in three installemnts. Here are detailed keyfacts about 
 this scheme.
----------------------------------------------------------------
 
 ## What is annadata sukhibhava?
 
