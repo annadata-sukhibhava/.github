@@ -25,6 +25,15 @@ this scheme.
 | First Installment Date | ₹ 7000(₹200 + 5000) was released on June 20, 2025 |
 
 -----
+## what to do if you are not getting paid (Annadata sukhibhava) Scheme 
+* It might be due to, Incomplete e-KYC? > Visit your local farmer service center (Rythu seva kendra) and complete E-KYC before June 20, 2025 deadline provided by government of andhra pradesh.
+* Still not reciving money? please contact
+  - District Agriculture officers
+  - Scheme helpline numbers
+  - visit nearest mee-sava office
+ 
+------
+
 
 
 <!--
