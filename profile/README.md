@@ -18,7 +18,7 @@ from the PM-Kisam Central government scheme, and ₹14000 from the state governm
 this scheme.
 
 > *annadata sukhibhava status check, check your status from the link given below:annadata sukhibhava status ceck by aadhaar number, phone number online check now*
-<center><h2>✅❯❯❯❯ 🛑LIVE <a href="https://www.dynews.net/2025/06/annadatha-sukhibhava-scheme-2025-full.html">Check Annadata Sukhibhava STATUS 👈🔺</a> online *WORKING* </h2></center>
+<center><h2>✅❯❯❯❯ 🛑LIVE <a href="https://www.google.com/url?q=https%3A%2F%2Fwww.dynews.net%2F2025%2F06%2Fannadatha-sukhibhava-scheme-2025-full.html&sa=D&sntz=1&usg=AOvVaw1RA6amWG96DUZuEu03z_4p">Check Annadata Sukhibhava STATUS 👈🔺</a> online *WORKING* </h2></center>
 
 ## What is annadata sukhibhava?
 
@@ -34,6 +34,7 @@ this scheme.
 | E-KYC Relaxation | Government of andhrapradesh AUto-completed e-kyc for 4.4 lakh formers, remaining 1.45 Lakh formers must complete e-kyc to get funds from govt, state & central |
 | Beneficiaries | About 45.7 Lakh farmer families are eligible. |
 | First Installment Date | ₹ 7000(₹200 + 5000) was released on June 20, 2025 |
+| Official website | Check all latest updates https://annadathasukhibhava.ap.gov.in/ |
 
 -----
 ## what to do if you are not getting paid (Annadata sukhibhava) Scheme 
