@@ -3,11 +3,13 @@
 Farmers in andhra pradesh can now easily check theri Annadata Sukhibhava status to see if they are eligible or have recieved the latest payment 2025
 here is clear guide to, which can help you to find your current status and undestand the latest updates about scheme. 
 
-----
+-----
+
 <a href="#" target="_blank">
   <img src="https://github.com/user-attachments/assets/521e4d65-7da8-4371-bbaf-fbbd7c2c55eb" alt="annadatha-sukhibhava" />
 </a>
-----
+
+-----
 
 ## ✅ Annadata Sukhibhava 2025 Scheme - Telugu Desam Party - Government 
 
