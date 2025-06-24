@@ -1,7 +1,9 @@
 ## Annadata Sukhibhava status - Check Your 2025 Scheme payment - AnnadataSukhibhava.ap.gov.in web
 
 Farmers in andhra pradesh can now easily check theri Annadata Sukhibhava status to see if they are eligible or have recieved the latest payment 2025
-here is clear guide to, which can help you to find your current status and undestand the latest updates about scheme. Annadata Sukhibhava website is launched by the government of andhra pradesh to help farmers. You can visit annadatasukhibhava.ap.gov.in website to check your name in the list and know your Payment status online. This page will update you live status about annadata sukhibhava, many farmers what to know when the annadata sukhibhava money will be released so today this page will help to check status online. This scheme gives financial support to all eligible farmers about 20,000 per year. Farmers are advised to complete eKYC to recieve the payment. and keep checking this page for all updates.
+here is clear guide to, which can help you to find your current status and undestand the latest updates about scheme. Annadata Sukhibhava website is launched by the government of andhra pradesh to help farmers. You can visit **annadatasukhibhava.ap.gov.in** website to check your name in the list and know your Payment status online. This page will update you live status about annadata sukhibhava, many farmers what to know when the annadata sukhibhava money will be released so today this page will help to check status online. 
+
+This scheme gives financial support to all eligible farmers about 20,000 per year. Farmers are advised to complete eKYC to recieve the payment. and keep checking this page for all updates.
 
 -----
 
