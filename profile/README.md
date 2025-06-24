@@ -48,7 +48,7 @@ this scheme.
 | First Installment Date | ₹ 7000(₹200 + 5000) was released on June 20, 2025 |
 | Official website | Check all latest updates https://annadathasukhibhava.ap.gov.in/ |
 
-[![annadata-sukhibhava-status](https://github.com/user-attachments/assets/cb077fb5-5a2d-4ad3-bd26-62e4ed49d154)(#)
+[![annadata-sukhibhava-status](https://github.com/user-attachments/assets/cb077fb5-5a2d-4ad3-bd26-62e4ed49d154)](#)
 *Image source: annadatasukhibhava.ap.gov.in website*
 
 -----
