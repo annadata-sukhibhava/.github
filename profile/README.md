@@ -17,7 +17,7 @@ This scheme gives financial support to all eligible farmers about 20,000 per yea
 
 -----
 
-<a href="#" target="_blank">
+<a href="https://github.com/annadata-sukhibhava" target="_blank">
   <img src="https://github.com/user-attachments/assets/521e4d65-7da8-4371-bbaf-fbbd7c2c55eb" alt="annadatha-sukhibhava" />
 </a>
 
@@ -48,7 +48,7 @@ this scheme.
 | First Installment Date | ₹ 7000(₹200 + 5000) was released on June 20, 2025 |
 | Official website | Check all latest updates https://annadathasukhibhava.ap.gov.in/ |
 
-[![annadata-sukhibhava-status](https://github.com/user-attachments/assets/cb077fb5-5a2d-4ad3-bd26-62e4ed49d154)](#)
+[![annadata-sukhibhava-status](https://github.com/user-attachments/assets/cb077fb5-5a2d-4ad3-bd26-62e4ed49d154)](https://github.com/annadata-sukhibhava/)
 *Image source: annadatasukhibhava.ap.gov.in website*
 
 -----
