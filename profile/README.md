@@ -3,6 +3,15 @@
 Farmers in andhra pradesh can now easily check theri Annadata Sukhibhava status to see if they are eligible or have recieved the latest payment 2025
 here is clear guide to, which can help you to find your current status and undestand the latest updates about scheme. Annadata Sukhibhava website is launched by the government of andhra pradesh to help farmers. You can visit **annadatasukhibhava.ap.gov.in** website to check your name in the list and know your Payment status online. This page will update you live status about annadata sukhibhava, many farmers what to know when the annadata sukhibhava money will be released so today this page will help to check status online. 
 
+| Details  | More Info |
+| -------- | --------- |
+| Total Annual support | ₹20,000 per farmer (₹6000 from PM-KISAM, ₹14000 state Grant) |
+| Installment structure | - 1st: ₹7000( ₹2K PM KISAN + likely ₹5K state funds |
+| First installment date Status | june 20, 2025 - 7000 credited ✅|
+| Total Eligible farmers | Approx. 45.7 Lakh families |
+| E-KYC Requirment | Mandatoru for all except 4.4 lakh auto-completed. others must finish by june 20, 2025 to recieve payment |
+| Main Scheme objectives | Provide financial aid, seeds, fertilizers, and disaster compensation to farmers |
+
 This scheme gives financial support to all eligible farmers about 20,000 per year. Farmers are advised to complete eKYC to recieve the payment. and keep checking this page for all updates.
 
 -----
