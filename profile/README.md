@@ -48,6 +48,9 @@ this scheme.
 | First Installment Date | ₹ 7000(₹200 + 5000) was released on June 20, 2025 |
 | Official website | Check all latest updates https://annadathasukhibhava.ap.gov.in/ |
 
+![image](https://github.com/user-attachments/assets/cb077fb5-5a2d-4ad3-bd26-62e4ed49d154)
+*Image source: annadatasukhibhava.ap.gov.in website*
+
 -----
 ## what to do if you are not getting paid (Annadata sukhibhava) Scheme 
 * It might be due to, Incomplete e-KYC? > Visit your local farmer service center (Rythu seva kendra) and complete E-KYC before June 20, 2025 deadline provided by government of andhra pradesh.
