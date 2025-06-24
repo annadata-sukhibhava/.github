@@ -7,10 +7,11 @@ here is clear guide to, which can help you to find your current status and undes
 | -------- | --------- |
 | Total Annual support | ₹20,000 per farmer (₹6000 from PM-KISAM, ₹14000 state Grant) |
 | Installment structure | - 1st: ₹7000( ₹2K PM KISAN + likely ₹5K state funds |
-| First installment date Status | june 20, 2025 - 7000 credited ✅|
+| First installment date + Status | june 20, 2025 - 7000 credited ✅|
 | Total Eligible farmers | Approx. 45.7 Lakh families |
 | E-KYC Requirment | Mandatoru for all except 4.4 lakh auto-completed. others must finish by june 20, 2025 to recieve payment |
 | Main Scheme objectives | Provide financial aid, seeds, fertilizers, and disaster compensation to farmers |
+| Check status Live | [click here to check Annadata Sukhibhava Status](https://www.google.com/url?q=https%3A%2F%2Fwww.dynews.net%2F2025%2F06%2Fannadatha-sukhibhava-scheme-2025-full.html&sa=D&sntz=1&usg=AOvVaw1RA6amWG96DUZuEu03z_4p) 🛑LIVE |
 
 This scheme gives financial support to all eligible farmers about 20,000 per year. Farmers are advised to complete eKYC to recieve the payment. and keep checking this page for all updates.
 
